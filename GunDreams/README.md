@@ -6,10 +6,10 @@ Resources used:
 
 OCR:
 
-http://www.i2ocr.com/free-online-japanese-ocr
-https://convertio.co/ocr/japanese/
-http://kanjitomo.net/
+* http://www.i2ocr.com/free-online-japanese-ocr
+* https://convertio.co/ocr/japanese/
+* http://kanjitomo.net/
 
 Translation:
 
-http://translate.google.com/
+* http://translate.google.com/
