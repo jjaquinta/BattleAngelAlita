@@ -13,3 +13,7 @@ OCR:
 Translation:
 
 * http://translate.google.com/
+
+Editors:
+
+* https://www.openoffice.org/download/
