@@ -1,6 +1,4 @@
----
-
-**Chapter 2**
+### Chapter 2
 
 The outskirts of **The Scrapyard** were a desolate expanse, ringed by mountains of discarded waste accumulated over centuries. Rusted remnants of the previous era piled high, forming a jagged ridge that scarred the horizon. At first glance, it was a dead world—a graveyard of obsolete machines and forgotten dreams. Yet, to those who knew its secrets, it was a treasure trove of resources waiting to be unearthed.
 

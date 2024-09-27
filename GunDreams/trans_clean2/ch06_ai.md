@@ -1,6 +1,4 @@
----
-
-**Chapter 6**
+### Chapter 6
 
 Late that night, the towering lights of the aerial city Zalem above **The Scrapyard** were swallowed by a thick veil of dark rain clouds that had stealthily crept in. The once-visible luminescence of Zalem flickered and vanished, leaving **The Scrapyard** cloaked in an oppressive darkness.
 
@@ -139,9 +137,3 @@ Norinco's retreat into the darkness left behind a trail of destruction, a warnin
 Meanwhile, Gally's fragmented consciousness stirred within the sewer's depths, her journey far from over. The storm had washed away some of the night's horrors, but new challenges awaited her in the shadows of **The Scrapyard**.
 
 And as the first light of dawn began to pierce through the lingering clouds, **The Scrapyard** prepared itself for another day of struggle, where the remnants of the past clashed with the hopes of the future.
-
----
-
-**End of Chapter 6**
-
----

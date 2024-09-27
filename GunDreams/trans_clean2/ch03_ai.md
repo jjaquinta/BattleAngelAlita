@@ -1,6 +1,4 @@
----
-
-**Chapter 3**
+### Chapter 3
 
 The colossal ivory pillar that anchored the floating city of Zalem descended like the elegant curve of a wine glass stem, flaring outward into a bell-shaped terminus high above the earth. Yet, this once-beautiful bell was grotesquely marred—the tip shattered as if gnawed by some celestial beast. From its mutilated end, a relentless cascade of waste spewed downward like tainted blood, a torrent of refuse raining upon the world below.
 

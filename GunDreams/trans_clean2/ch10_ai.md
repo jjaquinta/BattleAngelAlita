@@ -233,6 +233,3 @@ As she drifted into a troubled sleep, visions of shattered lives and lost dreams
 
 In the heart of The Scrapyard, where steel and shadows intertwined, Gally's journey continued—an odyssey of vengeance, redemption, and the search for identity in a world teetering on the brink of chaos.
 
----
-
-This revision elevates the original text by refining the language, enhancing the emotional depth, and structuring the narrative into clear, engaging paragraphs and sections. The dialogue flows more naturally, and the descriptions are more vivid, aligning with the quality and depth expected of a Hugo Award-winning science fiction novel.

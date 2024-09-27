@@ -1,6 +1,4 @@
----
-
-**Chapter 4**
+### Chapter 4
 
 "Hey... come on, wake up already."
 

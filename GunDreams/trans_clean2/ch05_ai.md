@@ -1,6 +1,4 @@
----
-
-**Chapter 5**
+### Chapter 5
 
 At the same moment Gally and Calico left the Factory District behind, a solitary figure made her way along the shadowed expanse of Tempest Street. It was Shig, the middle-aged prostitute, her footsteps echoing softly in the quiet night.
 
