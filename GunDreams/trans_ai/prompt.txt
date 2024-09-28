@@ -6,5 +6,5 @@ Translate ちぇ as Cali.
 
 Can you please scan the Japanese text from the image and transcribe it? Then can you translate it from Japanese into English? Translate クズ鉄町 as The Scrapyard. Translate ガリ as Gally.
 
-Can you edit the following chapter of a novel so that it sounds like a Hugo award winning Science Fiction novel. Paragraphs and section breaks need to be put correctly in.
+Can you edit the following chapter of a novel so that it sounds like a Hugo award winning Science Fiction novel. Paragraphs and section breaks need to be put correctly in. Change the name Kyarriko to Calico, and the name Gally to Alita.
 
