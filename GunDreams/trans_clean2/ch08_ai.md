@@ -1,61 +1,70 @@
-### CHAPTER 8
+CHAPTER 8
 
-“Gally, haven’t you been getting up a bit late recently?” Ido called from the clinic, poking his head out to greet her as she finally descended from the second-floor bedroom around noon.
+“Gally, haven’t you been getting up a bit late recently?” Ido called from the clinic, just poking his head out to speak when he saw Gally finally come down from the bedroom on the second floor around noon.
 
-“Yeah, sorry,” Gally replied, her voice still heavy with sleep as she made her way to the dining room.
+“Yeah, sorry,” Gally replied, still sleepy, as she made her way to the dining room.
 
-As she quietly ate her late breakfast, which had already morphed into something resembling lunch, Ido entered the room, stretching his neck and shoulders before speaking. “By the way, Gally, I’m thinking of going hunting tonight. Want to come along?”
+“By the way, Gally, I’m thinking of going hunting tonight. Want to come along?”
 
-Her response was hesitant and unenthusiastic. “Well, um, tonight… I kind of…”
+As Gally quietly ate her late breakfast, which was more like lunch at this point, Ido entered the dining room, rolling his neck and shoulders as he spoke. However, her response was hesitant and unenthusiastic. “Well, um, tonight… I kind of…”
 
-Exhausted from her activities the previous night, Gally declined Ido’s offer not just out of fatigue but also a subtle act of rebellion. After all, she had successfully taken down two bounty heads on her own just the day before.
+Gally was feeling tired from her activities the previous night, but more than that, she declined Ido’s offer out of a subtle sense of rebellion. After all, she had taken down two bounty heads on her own just the day before.
 
-Ido noticed the shift in her demeanor, his brow furrowing as he looked at her with a hint of disappointment. “What’s the matter, Gally? You were so interested in hunter work. Don’t tell me you’ve already lost interest?”
+Ido noticed her attitude and furrowed his brow, looking at her with a somewhat disappointed gaze. “What’s the matter, Gally? You were so interested in hunter work. Don’t tell me you’ve already lost interest?”
 
-Gally shook her head quickly, finishing her meal before standing up from the table. “Sorry, that’s not it… I just don’t feel up to it tonight. But I promise I’ll go next time.”
+Gally shook her head quickly in response and, after finishing her meal, stood up from the table. “Sorry, that’s not it… I just don’t feel up to it tonight. But I promise I’ll go next time.”
 
-Without waiting for further explanation, Gally hurriedly left the dining room and bolted out of the house. Ido stood frozen for a moment, as if trying to call her back, but eventually, he let out a sigh and slumped slightly, feeling drained. He sat down in a chair, lost in thought. “Gally... you were so fixated on being a Hunter, on fighting, so why now?” The possibility that Gally was hiding something from him stirred a dark emotion deep within, akin to jealousy. “My Gally...” Ido muttered, lowering his head over the table.
+With that, Gally hurriedly left the dining room and bolted out of the house. Ido stood frozen for a moment, as if trying to call her back, but after a while, he let out a sigh and slumped slightly, feeling drained.
 
-Meanwhile, Gally walked down the bustling main street in the early afternoon, surrounded by crowds of people. “Wow… it's so lively during the day,” she remarked. The streets were filled mostly with workers and shoppers, creating a bright and vibrant atmosphere. Yet, the shadows of the night lingered—junkies and collapsed homeless individuals were still present, and in some corners, drug deals and shady transactions occurred openly, even in broad daylight. The Scrapyard may have its changing facets, but it never transformed into a completely different town.
+Ido sat down in a chair, reflecting. “Gally... you were so fixated on being a Hunter, on fighting, so why now?” Could it be that Gally is hiding something from me? As this thought crossed his mind, he felt something dark stir deep within him, causing a faint tremor. It was a black emotion, akin to jealousy. “My Gally...” Ido muttered, lowering his head over the table.
 
-As Gally left the crowded main street and ventured down a few side alleys, she found herself in a quieter area with sparse shops. According to the map, she only had to walk a short distance further to reach Bergman's rental body shop.
+Meanwhile, Gally was walking down the bustling main street in the early afternoon, surrounded by crowds of people. “Wow… it's so lively during the day,” she remarked. The people filling the streets during the day were mostly workers and shoppers, creating a comparatively bright and lively atmosphere. However, that didn’t mean the junkies or collapsed homeless had disappeared, and in some corners of the street, drug deals and shady dealings were happening out in the open, even in broad daylight. The atmosphere, while vibrant, still carried hints of its rough edges.
 
-“This must be it. Looks like Bergman’s place,” Gally said to herself after about three minutes of walking, arriving at a shop named "Catch." The building's walls were adorned with countless embedded cyborg body parts, meticulously arranged to depict various throwing techniques. The entrance door bore the hastily scrawled word "Catch" in red paint, with no clear sign indicating it was a rental body shop.
+The Scrapyard may have its changing sides, but it didn’t seem to transform into a completely different town. As Gally left the crowded main street and ventured down a few side alleys, she found herself in a quieter area with sparse shops. According to the map, she only had to walk a bit further to reach Bergman's rental body shop.
 
-“Hm, what is this?” Gally chuckled, looking up at the building but soon noticed a battered cart placed near the entrance. The cart's bed was piled high with mysterious parts, machinery, and broken cyborg components. The precarious stack seemed poised to collapse at the slightest touch, adding to the chaotic vibe of the shop. However, amidst the filthy junk, something oddly out of place caught her eye. “Wow, that’s pretty,” Gally remarked. It was a female cyborg body with a mannequin head perched atop, seated on a makeshift chair at the front of the cart. The doll, dressed in cute, girlish clothes, was unnaturally pristine compared to its surroundings.
+"This must be it. Looks like Bergman’s place," Gally said to herself after walking about three minutes, arriving at a shop called "Catch." The building's walls were covered with countless embedded cyborg body parts, all arranged to depict various throwing techniques. The entrance door had "Catch" hastily scrawled in red paint, with no clear sign indicating it was a rental body shop.
 
-As Gally examined the odd display on the cart, a pleading voice emerged from inside Bergman’s shop. “Please, I’m begging you... I’m begging you!” Moments later, the shop door opened, and an elderly blind man—a full-body cyborg with cloth wrapped around his eyes—was pushed outside by Bergman.
+“Hm, what is this?” Gally chuckled as she looked up at the building but soon noticed a battered cart placed near the entrance. The cart’s bed was piled high with mysterious parts, machinery, and broken cyborg components. The precarious stack seemed like it could collapse at the slightest touch, adding to the chaotic vibe of the shop.
 
-“Come on, please, Mr. Bergman, have mercy on me...” the old man pleaded.
+However, in front of the cart piled with filthy junk, something oddly out of place caught her eye. “Wow, that’s pretty,” Gally said. It was a female cyborg body with a mannequin head perched on top, seated on a makeshift chair at the front of the cart. The doll, dressed in cute, girlish clothes, was kept unnaturally pristine compared to its surroundings.
 
-“You didn’t bring anything worth my time today. I’m not in the market for useless parts. Sorry, try somewhere else,” Bergman replied dismissively. He shoved the old man, who clung to his legs, pushing him onto the street.
+As Gally examined the odd display on the cart, a pleading voice came from inside Bergman’s shop. “Please, I’m begging you... I’m begging you!” A moment later, the shop door opened, and an elderly blind man, a full-body cyborg with a cloth wrapped around his eyes, was pushed outside by Bergman.
 
-“What’s going on, Bergman?” Gally asked, watching the scene unfold.
+“Come on, please, Mr. Bergman, have mercy on me...” the old man begged. 
 
-Bergman, wearing a stern expression, softened slightly upon seeing Gally and explained the situation. “Yeah, well, this homeless guy keeps begging me for some food or chips in exchange for parts, but he’s got nothing worth trading. On top of that, he’s being a real nuisance, so I chased him off.”
+“You didn’t bring anything worth my time today. I’m not in the market for useless parts. Sorry, try somewhere else,” Bergman replied dismissively.
 
-Crossing his square-shaped arms over his chest, Bergman let out a frustrated sigh. Gally responded with a nonchalant “Hmm,” then turned her attention to the dirty old man who had curled up in front of the shop.
+Bergman shoved the old man, who was clinging to his legs, pushing him onto the street. “What’s going on, Bergman?” Gally asked as she watched the scene unfold.
+
+Bergman, who had a stern look on his face, softened slightly when he saw Gally and explained the situation. "Yeah, well, this homeless guy keeps begging me for some food or chips in exchange for parts, but he’s got nothing worth trading. On top of that, he’s being a real nuisance, so I chased him off."
+
+Bergman crossed his square-shaped arms over his chest and let out a frustrated sigh. Gally responded with a nonchalant “Hmm,” then turned to the dirty old man who had curled up in front of the shop. 
 
 “Hey, old man, did you take care of that doll made from the cyborg body? It’s surprisingly clean,” she asked.
 
 The old man, dragging himself towards the cart, responded with a raspy voice mixed with wheezing. “Doll? I don’t know anything about a doll.”
 
-Gally, confused by his answer, furrowed her brows and asked again, “You don't know? I mean the cyborg body doll sitting in the front seat of this cart. Isn't that yours, old man?”
+Gally, confused by his answer, furrowed her brows and asked again.
 
-“Ahh... Br-... Breda, Breda!!” The old man panicked, shaking his white hair wildly as Gally pressed him further. Stumbling to the front of the cart, he reached out and carefully pulled the doll towards him, holding it tightly in both arms. “Shushu... Breda, Breda... Oh, I told you, didn’t I? You shouldn’t talk to strangers! It’ll be too late if something happens to you... You’re such a delicate girl...”
+"You don't know? I mean the cyborg body doll sitting in the front seat of this cart. Isn't that yours, old man?"
+
+"Ahh... Br-... Breda, Breda!!" The old man panicked, shaking his white hair wildly as Gally pressed him further. Stumbling around to the front of the cart, he reached out and carefully pulled the doll seated there towards him, holding it tightly in both arms. "Shushu... Breda, Breda... Oh, I told you, didn’t I? You shouldn’t talk to strangers! It’ll be too late if something happens to you... You’re such a delicate girl..."
 
 Seeing the old man’s frantic behavior, Gally stood there with her mouth slightly open, unable to comprehend the situation. Bergman gently tapped her on the shoulder and shook his head slightly. The old man had already forgotten everything else, his mind entirely consumed by the doll he called Breda.
 
-“Let’s go home, Breda... I know you must be a little hungry, but forgive me, alright?” the old man muttered as he slowly pulled the cart away, disappearing down the street.
+"Let’s go home, Breda... I know you must be a little hungry, but forgive me, alright?" The old man muttered as he slowly pulled the old cart, disappearing down the street.
 
-“Wait, the body might be impressive, but the head is just a doll, right?” Gally asked, still puzzled.
+"Wait, the body might be impressive, but the head is just a doll, right?" Gally asked, still puzzled.
 
-“Yeah, Gally, that’s just a regular doll. The old man lost his mind a long time ago,” Bergman responded with a sigh. “The old man's completely gone in the head. He used to be a skilled Hunter called Norinco, but now he's lost his eyesight and ended up like that.”
+"Yeah, Gally, that’s just a regular doll. The old man lost his mind a long time ago," Bergman responded, sighing.
 
-Gally responded with a simple "Hmm," quickly losing interest in the old man. Her focus shifted to checking out the Hunter-grade combat cyborg bodies available in Bergman's shop.
+"The old man's completely gone in the head. He used to be a skilled Hunter called Norinco, but now he's lost his eyesight and ended up like that," Bergman said.
 
-“Hey, Bergman, um... What kind of Hunter bodies do you have?” Gally asked, her eyes sparkling with excitement.
+Gally responded with a simple "Hmm," quickly losing interest in the old man. Her focus was on checking out the Hunter-grade combat cyborg bodies available in Bergman's shop.
 
-Bergman gave her a wink and a thumbs-up, grinning. “You came back the day after already? Don't worry, kid, my stock is the best in the Eastern District. Whatever your budget, I can get you exactly what you need. Come on in.”
+"Hey, Bergman, um... What kind of Hunter bodies do you have?" Gally asked, her eyes sparkling with excitement.
 
-“Awesome! I wonder if you have a body like Calico’s? It must be super expensive though,” Gally said as the two of them laughed and disappeared into the shop.
+Bergman gave her a wink and a thumbs-up, grinning. "You came back the day after already? Don't worry, kid, my stock is the best in the Eastern District. Whatever your budget, I can get you exactly what you need. Come on in."
+
+"Awesome! I wonder if you have a body like Calico’s? It must be super expensive though," Gally said as the two of them laughed and disappeared into the shop.
+

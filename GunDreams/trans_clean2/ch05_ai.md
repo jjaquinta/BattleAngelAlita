@@ -1,117 +1,57 @@
-### Chapter 5
+# CHAPTER 5
 
-At the same moment Gally and Calico left the Factory District behind, a solitary figure made her way along the shadowed expanse of Tempest Street. It was Shig, the middle-aged prostitute, her footsteps echoing softly in the quiet night.
+Tempest Street stretched out before her, cloaked in the night’s shadow. Shig, a middle-aged woman hardened by her years, walked alone, her thoughts simmering beneath the surface.
 
-"I hope that man, Ido, truly understands Gally," she murmured to herself.
+“I hope that man Ido truly understands Alita,” she muttered, her voice lost to the wind.
 
-Shig moved quietly through the deserted streets. Earlier, she had visited Ido Daisuke's clinic to deliver a message from Calico, informing him that Gally had become a Hunter-Warrior and was now with Calico in the pleasure district.
+She had left Ido Daisuke’s clinic with Calico’s message, informing him that Alita had become a Hunter. Now, with her errand complete, she was left alone to navigate the desolate streets. Ido's brusque dismissal replayed in her mind.
 
-"I have preparations to make. You may return now," Ido had said curtly before closing the door. Shig shrugged off his brusque demeanor. Since Calico hadn't instructed her to guide him further, she decided to make her way back alone.
+“I have preparations to make. You may return now,” he had said before shutting the door in her face. Shig, accustomed to such coldness, shrugged it off. After all, Calico hadn’t requested her company beyond the message delivery. Alone once more, Shig turned toward the maze of alleyways that would lead her back to the Pleasure District.
 
-She passed through Tempest Street and entered a narrow alleyway—a shortcut leading back to the heart of the pleasure district. The alley was scarcely a meter wide, twisting and turning like a labyrinth. Without streetlights, it was a maze shrouded in darkness, but for those who knew the way, it offered a swift path, cutting the journey time in half compared to the main roads.
+The air was still as she entered a narrow alley, barely a meter wide, winding and twisting like a labyrinth. Darkness smothered the passage, broken only by the distant flicker of neon lights at the alley’s end. Despite the shadows and the suffocating tightness of the walls, this was a shortcut she knew well. A few minutes through this path, and she’d reach the district. The main roads would take twice as long.
 
-As Shig navigated the winding passage, a peculiar sound echoed off the grimy walls—a faint, abrasive noise like something being dragged or rubbed together.
+But tonight, the alley felt different. Unfamiliar. She stopped. A sound—faint at first—began to echo off the dirty brick walls. A low, rasping friction. The noise of something large, something unseen, brushing against the alley’s edges.
 
-"What is that sound?" she whispered, furrowing her brow. An uneasy feeling settled in the pit of her stomach.
+“What is that sound?” Shig whispered, her hand instinctively reaching for a weapon she did not possess.
 
-A sudden chill ran down her spine, as if icy fingers had grazed her back.
+She quickened her pace, the sound following her, scraping against the alley’s confines. It slithered closer with each step, an ominous presence that set her nerves on fire. The feeling of being hunted gripped her spine, cold sweat forming on her brow.
 
-"Ah!"
+Her pace turned into a run. Left. Right. Straight ahead. The alley twisted in all directions, each corner sharp and unforgiving. She moved without thought, guided only by instinct and desperation. Behind her, the friction grew louder, closer.
 
-The unsettling friction noise seemed to draw nearer, creeping ever closer, like the stealthy approach of a predator.
+“Ah…” Shig gasped, her voice thin and terrified.
 
-"Ah... ah... ah... aah..."
+Then, ahead, a flicker of light. Small, but enough to break the darkness.
 
-Her breath quickened. The sound slithered through the darkness, a sinister whisper that set her nerves on edge.
-
-Drenched in cold sweat, Shig quickened her pace, her footsteps echoing in the narrow alley. She turned right, then left, navigating the maze by instinct, resisting the urge to glance over her shoulder.
-
-The oppressive silence was broken only by the relentless sound pursuing her.
-
-Out of breath, she rounded another corner.
-
-"Ah..."
-
-Ahead, at the far end of the alley, a small, flickering light glimmered—a beacon in the darkness.
-
-Relief washed over her, and a smile touched her lips.
+Relief flooded her veins. The end of the alley, so close now. She stumbled toward it, her breath ragged, her limbs trembling from the chase. The light was almost within reach—
 
 ---
 
-Calico exhaled a stream of smoke as she lit the cigarette between her lips, her gaze fixed on Ido.
+Elsewhere, Calico stood silently, lighting a cigarette as she glanced at Ido. He remained silent for a moment, his fingers gently stroking Alita’s hair as if in contemplation. When he finally spoke, his words came out in a low, thoughtful murmur.
 
-"So, what's your take on all this?" she asked.
+“I don’t know much about Panzer Kunst… but I’ve heard whispers. It’s more than a martial art. It was a way of life on Mars—a legend, destroyed because it became too powerful. They say it was feared across the solar system.”
 
-Ido didn't respond immediately. He sat beside the unconscious Gally, gently stroking her hair. After a moment, he began to speak, almost as if to himself.
+His voice trailed off as if he were trying to recall fragments of a forgotten time. “In the old age, humanity spread across Venus, Mars, even Jupiter. Each planet forged its own culture, its own wars. But on Mars... Panzer Kunst was a force of destruction. It wasn’t just combat—it was assassination, guerrilla warfare. A technique that transcended the battlefield.”
 
-"I don't know much about Panzer Kunst," he admitted. "But I've heard it's a legendary martial art—one that was feared and eventually eradicated because of its terrifying power. They called it the ancient Martian martial art for a reason."
+Calico took a drag from her cigarette, the glow illuminating her face. “I can see why,” she said. “It’s nothing like the martial arts of Earth. Watching her use it... I can’t imagine the kind of war that art was born from.”
 
-He paused, his eyes distant.
+Her eyes shifted toward Alita, sleeping peacefully in Ido’s arms. She stepped forward, her fingers brushing against the girl’s cheek with a tender, almost motherly affection. But something simmered beneath Calico’s smile—something dangerous. Ido saw it, the flash of golden light in her eyes, a predator’s gleam, masked beneath the warmth of her touch.
 
-"In the old spacefaring days, humanity reached out to Venus, Mars, Jupiter—we built unique cultures on each planet. On Mars, the practitioners of Panzer Kunst wielded immense power in wars, mastering assassinations and guerrilla tactics. The saying went, 'On Mars, there is Panzer Kunst.' They were feared."
+He stiffened, his instincts screaming a warning. “Calico… you…”
 
-Calico nodded thoughtfully. "I see... The principles are quite different from our Earth-style martial arts. Watching Gally move, it's clear her techniques aren't confined to ground-based combat. It's as if she's fighting in three dimensions."
+His voice was strained, heavy with realization. He moved, positioning himself between Alita and the woman before him. His back straightened, his tone darkening. “I won’t let you near her again. I can see it in your eyes. If you and Alita remain close… one day, you’ll try to kill each other.”
 
-She approached Gally, who lay peacefully in Ido's arms. Gently, Calico placed a hand on the girl's cheek, a gesture that seemed affectionate. But Ido felt a chill. Beneath Calico's calm exterior, he sensed a simmering hostility.
+For a moment, Calico stood still, her eyes locked on Ido’s. The air between them was thick with unspoken tension. Then, slowly, her lips curled into a dry, humorless chuckle. She turned away, walking toward the shadowed alley without so much as a backward glance.
 
-"Calico, you..." Ido murmured, his expression darkening.
+“Maybe you’re right,” she called over her shoulder, her voice cold, detached. “She’s a cute kid… but I think I’ve just started to dislike her. Tell her not to come looking for me.”
 
-He turned slightly, positioning himself between Calico and Gally. His voice trembled with a restrained urgency.
+Her footsteps faded into the darkness, the sound swallowed by the city. Ido watched her leave, his body rigid with unease. He understood now. Calico was too proud, too strong. She would never allow anyone—especially someone like Alita—to threaten her place. If Alita continued to grow, to surpass her…
 
-"I won't let you see Gally anymore. After seeing your eyes just now, I'm convinced. If you and Gally stay around each other, it's only a matter of time before you try to kill each other."
-
-Calico was momentarily taken aback. Then, a dry chuckle escaped her lips.
-
-"Perhaps you're right," she conceded. "She is a remarkable girl, but I've just realized I don't like her very much. Make sure you tell her not to come after me, okay?"
-
-She turned away, her silhouette melding into the shadows of the alley.
-
-Ido watched her go, a heavy weight settling in his chest. He knew Calico's fierce temperament and immense pride as a warrior. She couldn't tolerate the presence of someone who might rival or surpass her skills. If Gally continued to grow stronger, a confrontation between them seemed inevitable—a clash between two titans bound by fate.
+He sighed, glancing down at the girl in his arms. It was inevitable. They were bound by fate, two warriors on a path that would one day force them to collide.
 
 ---
 
-After Calico disappeared into the depths of the night, Ido began the journey home, carrying Gally gently in his arms. The streets were quiet, the air cool against his skin. After a few steps, he hesitated. Turning back toward the alley, his gaze searched the darkness.
+As Calico disappeared into the city’s night, Ido adjusted Alita in his arms and began the walk home. His thoughts churned, dark and brooding. After a few steps, he stopped, glancing back toward the alley where Calico had vanished. The darkness yawned before him, empty and silent.
 
-"Calico's hostility is more dangerous to Gally than Colt's twisted obsession," he thought aloud. "If only I had the power to stop her here and now..."
+“Calico’s jealousy… her strength… they’re more dangerous than Colt’s obsession. I should have stopped her here and now.”
 
-He clenched his fist, frustration gnawing at him. But he knew the truth. He lacked the strength to confront Calico, let alone defeat her.
-
-"All I can do is protect Gally as best I can," he whispered, his voice tinged with bitterness.
-
-He resumed walking, the sound of his footsteps absorbed by the silent city.
-
-Unbeknownst to him, the seeds of conflict had already been sown, and the shadow of impending danger loomed larger than ever.
-
----
-
-Some distance away, in the labyrinth of alleys, Shig's smile faded as she realized the flickering light was not a friendly beacon but something else entirely.
-
-A sense of dread crept over her.
-
-"Who's there?" she called out tentatively.
-
-The only response was the eerie echo of her own voice.
-
-She took a cautious step forward, her instincts urging her to flee, but curiosity anchored her feet.
-
-From the shadows, a figure emerged, the dim light casting ominous silhouettes.
-
-Shig's heart pounded. She recognized the glint in the stranger's eyes—a cold, predatory gaze.
-
-"No... it can't be," she whispered.
-
-The friction sound that had pursued her now resonated loudly, a chilling symphony of metal and menace.
-
-As the reality of her situation sank in, Shig's thoughts turned briefly to Gally and Ido.
-
-"I hope they find peace," she murmured.
-
-The alley swallowed her words, and the darkness closed in.
-
----
-
-That night, unseen by most, a quiet storm gathered over **The Scrapyard**. Threads of fate intertwined, setting in motion events that would alter lives and destinies.
-
-And as the city slept, whispers of change drifted through the air—a prelude to the trials yet to come.
-
----
+He clenched his fist, the weight of his helplessness settling over him like a shroud. But deep down, he knew he didn’t have the strength to kill her. Not yet.

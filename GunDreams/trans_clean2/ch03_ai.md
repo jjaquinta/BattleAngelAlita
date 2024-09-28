@@ -1,275 +1,190 @@
-### Chapter 3
+# CHAPTER 3
 
-The colossal ivory pillar that anchored the floating city of Zalem descended like the elegant curve of a wine glass stem, flaring outward into a bell-shaped terminus high above the earth. Yet, this once-beautiful bell was grotesquely marred—the tip shattered as if gnawed by some celestial beast. From its mutilated end, a relentless cascade of waste spewed downward like tainted blood, a torrent of refuse raining upon the world below.
+Beneath the massive, ivory-colored pillar that supported the floating city of **Zalem**, the underside curved elegantly like a bell—beautiful, save for the grotesque, jagged tear at its tip, where waste spewed down to the earth below like foul, dirty blood. 
 
-The detritus fell continuously.
+The trash rained continuously from Zalem, forming a towering heap over a thousand meters high at the center of **The Scrapyard**. Each new fall of debris sent distant tremors through the ground, accompanied by a low, ominous rumble.
 
-"Ah, it's already past noon," Ido murmured as a distant rumble reverberated through the streets. The ceaseless flow of waste from Zalem accumulated in a towering slag heap over a thousand meters high at the center of **The Scrapyard**. Each new avalanche of debris crashed onto the peak, sending tremors through the ground and echoing thunder across the city.
+Ido stood still, feeling the vibrations beneath his feet, eyes narrowing as the midday sun filtered through the dust-laden air. "It's past noon already," he muttered, using the distant rumble as a marker of time, as many in The Scrapyard did. The sound heralded the end of work for many—a time to pause, to reflect, and in some cases, to take a “half-day.”
 
-In **The Scrapyard**, this periodic clamor served as a crude chronometer. The midday quake signaled the end of the morning's labors, a customary respite locals referred to as "half-day." Familiar with this routine, Ido used the tremors to gauge the hour.
+He turned, his attention shifting back to the figure nearby.
 
-"Hey, Gally, come over here," he called.
+“Hey, Alita, come over here,” Ido called out gently.
 
-Seated in a wheelchair nearby, Gally met his gaze with a mixture of anxiety and anticipation. She was transformed. Her mechanical limbs were fully integrated, and her newly crafted body possessed the youthful, feminine contours of a girl in her prime.
+Alita, seated in a wheelchair, looked at him with slight hesitation. She had undergone a transformation in the days since they’d found her buried in the trash heaps—her body now equipped with cybernetic limbs, her frame restored to that of a young woman. It had taken time, but she was whole again, at least in form.
 
-Just days earlier, Ido had secured the parts for her legs. That morning had been devoted to attaching them.
+With newfound determination, she gripped the armrests of the chair and pushed herself up. 
 
-"Okay, I'm coming," Gally replied.
+"That's it, you can do it, Alita!" Ido encouraged, his fists clenched in anticipation. 
 
-She placed her hands on the armrests, applying pressure to lift herself. Her fingers, now delicate yet strong, tightened with determination.
+Her movements were slow at first, cautious, as she lowered one foot to the ground, as if testing the weight of the earth beneath her. Then, with a deep breath, she placed the other foot forward.
 
-"That's it, you can do it!" Ido cheered, his fists clenched in excitement.
+“I... Ido...”
 
-Gally hesitated momentarily before pushing herself up. Ido instinctively stepped forward, ready to catch her if she faltered. She carefully placed one foot on the ground, testing her balance as if dipping a toe into uncertain waters. Then, she set down the other foot, her posture wavering but resolute.
+Her voice trembled, reflecting a mixture of fear and resolve as she took her first, tentative steps toward him. Her movements were still awkward, but the sight of her walking again—alive, mobile—brought a wide smile to Ido’s face. Unable to contain his joy, he stepped forward and embraced her tightly.
 
-"I... Ido..." she whispered.
+"Ah, I’m so relieved. It looks like my body still remembers how to walk,” Alita said with a soft laugh. She looked up at Ido, eyes bright with the wonder of rediscovery. "Hey, Ido, does this mean I've finally become... a proper person?"
 
-Her face was a canvas of fear and resolve. Reaching out toward him, she took a tentative step, then another. Ido's heart swelled. He moved closer and embraced her as she stumbled into his arms.
+Ido’s expression softened. “Getting your body back together is just the beginning. You have to keep living from here on.”
 
-"You're doing it, Gally!" he exclaimed.
+“Keep living...” Alita echoed, her voice trailing off as she gazed out toward the sprawling scrapyard. Just a few weeks ago, she had been nothing more than forgotten debris, buried in a world that no longer remembered her existence. Now, she stood on her own two feet, but questions tugged at her, deep and insistent. Was this truly *her* life? Or was she merely an extension of Ido’s will, living because he had given her form?
 
-A radiant smile spread across her face. "I'm so relieved. It seems my body still remembers how to walk. Hey, Ido, does this mean I've finally become... me?"
-
-He held her at arm's length, looking into her eyes. "Getting your body back is just the beginning. Your life starts now. You have to keep living from here on."
-
-"Keep living..." Gally echoed, her gaze drifting as she pondered his words. Until now, her existence had been a gift from Ido—a second chance salvaged from the wreckage of the past. But was it truly her own life? A flicker of uncertainty ignited within her.
-
-As she grew more comfortable in her new form, questions began to stir. What did it mean to live? To be herself?
+As she pondered, a faint seed of doubt began to take root within her.
 
 ---
 
-Later, as twilight painted the sky with hues of amber and violet, Gally carried a tray with a water jug into the living room. Gonzu, an old friend of Ido's, was just rising unsteadily from the table, his face flushed from drink.
+Later, in the quiet of Ido’s living room, Alita balanced a tray with a jug of water, walking over to where Gonzu was preparing to leave. 
 
-"Oh, Gonzu, are you leaving already?" Gally asked.
+"Are you leaving already?" she asked, watching as the older man—drunk and swaying—pulled himself from the table.
 
-He nodded, wobbling slightly. "Yeah, if I drink any more here, I'll end up staying the night. Better continue at my own place."
+“Yeah, yeah, I’m off. If I drink any more, I’ll end up sleeping here,” Gonzu muttered with a chuckle, his wrinkled face flushed red from the alcohol.
 
-Ido, who had been sharing a light drink with him, leaned back in his chair. "You know you're always welcome to stay."
+Ido, seated nearby, stretched lazily. “You know you’re welcome to stay if you want,” he offered.
 
-Gonzu chuckled, waving a dismissive hand. "Heh, I know you too well. Don't want to impose. See you around."
+But Gonzu waved a hand dismissively. “Nah, you’re not the type who enjoys overnight company. I know that well enough.” He grinned and staggered out the door, leaving the room to Alita and Ido.
 
-Gally watched as he made his way to the door, then returned to find Ido stretching with a yawn.
+As the door clicked shut, Ido stood up with a yawn. "I’m tired today. I think I’ll turn in early.”
 
-"I'm tired today," he said, rubbing his eyes. "And with the drink in me... I think I'll turn in early."
+Alita tugged at the hem of his jacket, her eyes wide and pleading. “Are you really going to sleep already? Is the story about the outside world over for today?”
 
-Gally tugged gently at his sleeve. "Hey, Ido, are you really going to sleep already? Weren't you going to tell me more about the outside world?"
+Ever since gaining her mobility, Alita had been eager to hear Ido’s stories—especially those about The Scrapyard and its hidden corners. Every little detail fascinated her, feeding her curiosity. But tonight, Ido shook his head.
 
-Since gaining mobility, Gally had been voraciously curious, eager to learn everything she could about **The Scrapyard**. Each story Ido shared was a window into a world she longed to understand.
+“Sorry, not tonight. I’ve got a lot to handle right now. But in a few days, I’ll take you out to see the lively streets. For now, you should get some rest.”
 
-He smiled apologetically. "I'm sorry, but let's continue another time. I've been busy, but in a couple of days, I'll take you to see the lively streets. For now, try to get some rest."
+Disappointed but resigned, Alita returned to her room as Ido disappeared down the hall.
 
-She pouted slightly but nodded. "Alright."
+*Closing my eyes and letting another day end… it feels so boring,* she thought, slipping beneath her covers.
 
-Ido stood and gave her a gentle pat on the head before heading toward his room. Left alone, Gally sighed and made her way to her own quarters.
+---
 
-"Another day ending already..." she murmured as she settled into bed. The room dimmed as she switched off the lights, moonlight casting a silvery glow through the curtains.
-
-Sleep did not come easily. Hours passed as she lay awake, thoughts swirling like leaves in an eddy. Just as she felt herself drifting, a subtle sound stirred her.
+Hours passed, but sleep eluded her. She lay in bed, staring at the ceiling, her mind racing with thoughts of the outside world. Finally, just as she was about to drift off, a noise stirred her from the edge of sleep.
 
 Footsteps.
 
-They were soft but distinct, echoing faintly in the silence. Gally's eyes opened. She sat up, listening intently. The steps moved past her door, descending the stairs. Then, the faint creak of the clinic's front door opening and closing.
+Faint, rhythmic, and growing distant. Alita’s eyes opened. In the moonlit room, she listened carefully, heart quickening. The footsteps were moving down the stairs. A few moments later, she heard the faint click of the clinic door opening, then closing softly.
 
-Curiosity piqued, she slipped out of bed and padded silently to the window. Peering through a gap in the curtain, she saw a figure moving along the street below.
+Curiosity burning inside her, Alita slipped out of bed and crept to the window. She peered out through the curtains and saw a figure, dragging a large trunk, disappearing into the shadows of the street.
 
-Ido.
+*Ido...?*
 
-He was dressed in black, dragging a large trunk behind him—a side of him she had never seen.
-
-"Where is he going at this hour?" she whispered.
-
-A spark of intrigue ignited within her, quickly fanning into a flame. The unknown beckoned, and despite a flicker of apprehension, she felt compelled to follow.
-
-Without hesitation, Gally hurried downstairs and slipped into the night, pursuing Ido's shadow as it melded into the labyrinth of **The Scrapyard**.
+The spark of curiosity flared into a full-blown flame, and without another thought, Alita bolted from her room, racing into the night to follow him.
 
 ---
 
-The eastern pleasure district was a cacophony of light and sound—a nocturnal carnival where neon signs blazed like artificial suns, bathing the streets in kaleidoscopic hues. It was a realm where the line between heaven and hell blurred, a place teeming with life yet devoid of warmth.
+The pleasure district of **The Scrapyard** was a place of chaos. Under the garish glow of neon lights, the streets buzzed with activity, a sleepless hive of indulgence and vice. Here, everything was for sale—sex, drugs, violence—and the rules of the outside world held no sway.
 
-Gally navigated the throng, her senses overwhelmed by the onslaught. Vendors hawked dubious wares, holographic advertisements flickered and danced, and the air was thick with the mingled scents of spice, smoke, and sweat.
+Alita weaved through the crowd, overwhelmed by the sheer sensory overload. The flicker of holo-ads, the roar of cybernetic combat matches, the sickly scent of burning narcotics—it all assaulted her at once.
 
-"This is... too much," she muttered, feeling a wave of dizziness.
+"Where are you, Ido?" she muttered, her small frame nearly swallowed by the throng of people. She kept her eyes on his black, Adamski-style hat, bobbing just ahead of her through the sea of bodies.
 
-Her eyes searched the crowd, seeking the familiar silhouette of Ido. His tall frame and distinctive hat served as a beacon amidst the sea of faces.
+Suddenly, Ido slipped into a narrow alley. Alita hurried after him, pushing through the press of the crowd—until she slammed into something hard.
 
-Unaware of her pursuit, Ido weaved through the masses with practiced ease. Suddenly, he veered into a narrow alley.
+"Well, well, seems like Baby’s hammerhead is pretty tough!" 
 
-"Wait!" Gally quickened her pace, but the press of bodies slowed her progress.
+Alita staggered backward, stunned. Before her stood a towering full-body cyborg with the head of a steel bull. He grinned down at her, flexing his massive arms. 
 
-She pushed forward, only to collide with a solid barrier. The impact sent her stumbling backward, landing hard on the pavement.
+"S-sorry," Alita stammered, trying to step around him, but the bull-headed cyborg blocked her path, deliberately thrusting his chest forward.
 
-"Well, well... seems like the little lady's in a hurry," a deep voice rumbled.
+"Sorry doesn’t cut it, little girl!" He sneered, his voice booming. “What should I do with you now?”
 
-Looking up, Gally found herself staring at a towering figure—a full-body cyborg with the head of a steel bull. His metallic visage glinted under the neon lights, eyes glowing with a predatory gleam.
+Alita backed away, her heart pounding. *Someone… please help…*
 
-"I'm sorry," she stammered, scrambling to her feet.
+But the crowd merely watched, amused or indifferent. No one stepped in to aid her.
 
-"Sorry doesn't cut it, sweetheart," he sneered. "You nearly dented my delicate frame."
-
-He pressed a massive hand to his chest in mock offense. The crowd around them began to part, onlookers drawn by the unfolding confrontation.
-
-Gally's heart raced. "I didn't mean to—"
-
-"What's a cute thing like you doing out here alone?" he interrupted, stepping closer. "Dangerous place for someone so... fragile."
-
-She retreated a step, glancing around for an escape. The faces surrounding them were indifferent, some amused, none sympathetic.
-
-"I'm just passing through," she said, trying to keep her voice steady.
-
-He chuckled darkly. "Oh, I think you'll be staying a while."
-
-He raised a fist the size of her head. "Let's see how tough you really are."
-
-Time seemed to slow as he swung at her. Instinctively, Gally ducked, the fist whistling past her ear with inches to spare. Seizing the moment, she darted beneath his arm, slipping through the narrow gap.
-
-"Hey!" he bellowed, momentarily off-balance.
-
-Behind her, she heard the sickening crunch of metal as his missed punch connected with an unfortunate bystander.
-
-"That brat!" the bull-headed cyborg roared.
-
-Gally didn't look back. She wove through the crowd, adrenaline surging as she sought refuge.
+The bull-headed cyborg raised his fist, a grin splitting his face. "Time to teach you a lesson, baby!"
 
 ---
 
-"Over here, dear!"
+"Uwaaaahhh!" 
 
-A voice beckoned from a nearby alcove. Gally hesitated but then saw a plump woman with a warm smile, waving her over. Heavy makeup adorned her raccoon-like face, eyes bright with concern.
+Alita ducked just as the cyborg’s massive fist whizzed past her head, slamming into the ground with a crack. Without thinking, she rolled through the narrow space under his arm and dashed into the crowd, slipping away before he could react.
 
-"Come on, quickly," the woman urged.
-
-Desperate, Gally accepted the offer, allowing herself to be pulled into a side alley. The noise of the main street faded, replaced by the muffled hum of distant revelry.
-
-"Thank you," Gally breathed.
-
-The woman leaned against a graffiti-stained wall, catching her breath. "Name's Shig. You alright?"
-
-"Gally," she replied. "I think so."
-
-Shig studied her for a moment. "What were you doing out there alone? This part of town isn't safe for someone like you."
-
-"I was... looking for someone," Gally admitted.
-
-Shig sighed. "Well, you nearly found trouble instead. That brute you bumped into is Colt—a real piece of work. Best to steer clear."
-
-Gally nodded, still shaken. "I didn't realize..."
-
-"Tell you what," Shig offered. "Why don't I help you find your friend?"
-
-Before Gally could respond, she noticed a subtle change in Shig's demeanor. The warmth in her eyes cooled, replaced by a calculating edge.
-
-"Actually," Shig continued, her tone shifting, "there's something you can help me with."
-
-A shadow fell over Gally's face. "What do you mean?"
-
-From the depths of the alley, figures emerged—women with hardened expressions, surrounding them. Gally's pulse quickened.
-
-Shig smirked. "You've got some valuable parts there, sweetheart. Arms, legs... I've seen them before."
-
-Confusion washed over her. "These? I don't understand."
-
-"Those limbs belong to girls who've gone missing," Shig hissed. "Friends of ours. And you show up wearing them? Doesn't look good."
-
-Gally's mind reeled. "No, I... Ido fixed me. He gave me these."
-
-"Ido?" The name rippled through the group like a spark igniting dry tinder.
-
-"He's the one," another woman snarled. "He's the killer."
-
-"Wait!" Gally protested. "Ido isn't a killer! He saved me!"
-
-Shig drew a slender blade, its edge glinting ominously. "Enough lies. We're going to make sure he gets the message."
-
-Panic surged. The circle tightened as knives were drawn.
-
-"I don't want to die," Gally whispered, fear gripping her.
-
-As Shig lunged, time seemed to fracture. In a split second, something deep within Gally awakened—a dormant instinct surging to the surface.
-
-With fluid precision, she caught the descending blade between her palms. The metal shattered, fragments scattering like sparks.
-
-Shig stumbled back, eyes wide with disbelief. The other women recoiled, shock etched on their faces.
-
-"What are you?" Shig gasped.
-
-Gally stood slowly, a newfound confidence radiating from her. "I... I don't know."
-
-The alley fell silent. One by one, the women retreated, pulling Shig with them. Fear had supplanted their anger.
+“F***! That baby got away!” the bull-headed cyborg snarled, turning to pursue her.
 
 ---
 
-Alone once more, Gally trembled. "What... just happened?"
+Alita’s heart raced as she ran, weaving through the crowd until she heard a soft voice call out to her.
 
-Her heart raced, the adrenaline ebbing to reveal a mix of exhilaration and dread. Fragments of forgotten skills flickered in her mind—combat techniques that felt both foreign and intimately familiar.
+“Over here, sweetie.”
 
-"Is this who I was?" she wondered aloud.
+She turned and saw a plump woman standing in the shadows of a narrow alley. The woman waved her over with a smile, her face thick with makeup.
 
-Before she could delve deeper, a chilling presence manifested behind her.
+“You’ll be safe here for a while,” the woman said as Alita hesitated. She gently took Alita’s hand and led her into the dim, garbage-strewn alley. “My name’s Shigu. What’s yours?”
 
-"Impressive," a voice remarked, cool and edged like a blade.
+“Alita,” she replied cautiously.
 
-Gally spun around to face the newcomer—a tall woman with fiery red hair styled like a spiked crown. She wore a sleek leather coat, and behind silver-framed glasses, her eyes gleamed with predatory interest.
+Shigu leaned against the wall, her gaze shifting as if calculating something. “A girl like you wandering around here at night? You’re bound to run into trouble.”
 
-"Who are you?" Gally demanded, tension coiling within her.
+"I lost sight of Ido... and that guy with the bull head..." Alita clenched her fists in frustration. "I didn’t know what was going on, and I panicked... damn it!"
 
-The red-haired woman smiled thinly. "Just someone who's been hired to deal with a certain problem."
+Shigu laughed softly, but there was something sharp in her eyes, something dangerous.
 
-"You're after Ido," Gally realized, her fists clenching.
+Before Alita could react, several more women appeared from the shadows, surrounding her. Shigu’s tone grew cold.
 
-"So he is involved," the woman mused. "Interesting."
+“You’re too kind, Alita. I didn’t save you for free. Now, it’s time to accept your fate.” 
 
-Without warning, Gally launched herself forward, driven by a surge of protectiveness. "I won't let you hurt him!"
+One of the women shoved Alita against the wall, pressing a knife to her throat.
 
-The woman sidestepped gracefully, but Gally anticipated the move, adjusting mid-strike. Their limbs blurred in a rapid exchange—kicks, blocks, feints.
+"What are you doing?!" Alita gasped.
 
-For a moment, they stood locked in a stalemate, each assessing the other.
+The women rolled up her sleeves, examining her cybernetic limbs. “Shigu, no doubt about it. These
 
-"Not bad," the woman admitted. "But you're out of your depth."
+ are parts from the missing Stea.”
 
-She moved with blinding speed, delivering a calculated blow that sent Gally crashing into the wall. Pain radiated through her as she struggled to stand.
+“And her legs... from that killer Walza.”
 
-The woman approached, peering down with a mix of curiosity and pity. "You're connected to Ido, aren't you? Perhaps his daughter?"
-
-Gally shook her head weakly. "He saved me... that's all."
-
-A flicker of something crossed the woman's face—sympathy, perhaps.
-
-"Then you should stay out of this," she advised. "This world is harsher than you realize."
-
-As darkness encroached on the edges of her vision, Gally fought to remain conscious. "Ido... please be safe..."
-
-Her strength waned, and she slipped into unconsciousness, the last image seared into her mind—the red-haired woman turning away, a silent enigma cloaked in shadows.
+Shigu’s eyes narrowed. “Those limbs of yours, girl... they belonged to our sisters. Where did you get them?”
 
 ---
 
-Gally awoke to the soft glow of morning filtering through a dusty window. Her body ached, but she was alive.
+Alita’s heart raced as the bloodlust in the alley rose to a fever pitch. The women brandished knives, their eyes burning with anger.
 
-"Where... am I?" she murmured.
+"You’ve got the arms and legs of our dead sisters, girl. We’ll make you pay for it—and that bastard Ido too!"
 
-"You'll be fine," a familiar voice assured her.
+"No! Ido would never—he’s not a killer!" Alita cried, her breath quickening as the knife in Shigu’s hand gleamed in the dim light.
 
-Turning her head, she saw the red-haired woman seated nearby, arms crossed.
+“It’s too late for excuses, little girl,” Shigu sneered, raising the blade. “Time to die.”
 
-"Why did you..." Gally began.
+Alita’s mind screamed, a wild, instinctive fear flooding her senses. 
 
-The woman met her gaze. "Consider it a professional courtesy. You're not my target."
+"I... I don’t want to die!"
 
-Gally sat up slowly. "Thank you."
-
-"Don't mention it." The woman stood, adjusting her coat. "But heed my warning. Stay out of this."
-
-"Wait," Gally called after her. "What's your name?"
-
-She paused at the doorway, glancing back. "It's Calico."
-
-With that, she vanished into the labyrinth of **The Scrapyard**, leaving Gally with more questions than answers.
+Something inside her snapped—a deep, primal force surging to the surface. With a sharp cry, Alita’s body moved on its own, her fists catching the knife mid-swing. The blade shattered, scattering shards of steel across the alley.
 
 ---
 
-Determined, Gally rose, despite the protests of her battered body. She had to find Ido, to warn him of the danger that lurked.
+The women froze in shock. Shigu staggered back, her face twisted with terror as she collapsed onto the filthy ground, her legs giving out beneath her. 
 
-As she stepped into the bustling streets, a resolve hardened within her.
+The other women, wide-eyed with fear, dropped their knives and fled into the shadows, leaving Alita standing alone in the alley, trembling.
 
-No matter what secrets lay hidden, she would uncover them. For herself, and for the man who had given her a second chance at life.
+*What... what is this feeling?*
+
+Her body hummed with unfamiliar energy, a surge of violent instincts rising within her. Memories—fragmented and hazy—flickered at the edge of her consciousness, remnants of a past she couldn’t fully recall.
+
+But before she could regain her composure, a voice interrupted the stillness.
 
 ---
+
+"That was impressive, little lady."
+
+Alita spun around, her heart leaping into her throat. From the shadows, a tall figure stepped forward—a woman with sharp, red hair and a cold, calculating gaze. She wore a sleek leather coat, her body clearly that of a full-body cyborg like Alita.
+
+“Who... who are you?” Alita demanded, her body still tense, ready to fight.
+
+The red-haired woman grinned. “I was hired to find a certain serial killer. But now I’ve found something even more interesting...”
+
+The two women stood locked in a moment of quiet, mutual recognition. Alita, trembling, narrowed her eyes, her fists clenching.
+
+“I won’t let you hurt Ido!” she shouted, charging toward the red-haired woman with all the force she could muster.
+
+But in an instant, the red-haired woman dodged, countering with a swift kick that sent Alita flying into the wall. 
+
+Alita hit the ground hard, dazed, her vision blurring as the woman approached her.
+
+"You mentioned Ido, huh?" the redhead said, her voice curious. “Is he your father or something?”
+
+“No... he’s my savior,” Alita whispered, her consciousness slipping away as the woman loomed over her, her figure cast in shadow.
+
+*Ido... please don’t get caught by this woman...*
+
+And then, everything went black.
+

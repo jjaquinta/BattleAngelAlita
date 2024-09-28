@@ -1,143 +1,94 @@
-### Chapter 1
+# CHAPTER 1
+
+The night air was thick with tension, shadows shifting under the pale light of a broken moon. A figure sprinted through the narrow alleys of **The Scrapyard**, breath ragged and frantic.
 
 "Kihee!"
 
-The man's ragged breath tore through the moonlit silence as he sprinted frantically through the labyrinthine alleys of **The Scrapyard**. No streetlights illuminated his path; only the sporadic sparks from frayed cables dangled from crumbling walls, casting eerie, pale blue flashes that painted his wild figure in a strobe of light and shadow. He appeared and disappeared like a ghostly animation—a half-cyborg with a mechanized left arm and part of his skull replaced by metal plating. Clutched in his robotic hand was a large, worn machete, its blade faintly gleaming with the thick, dark blood of his latest victim.
+The man's wild cry echoed off crumbling walls. Sparks from torn cables flickered in the dark, casting fleeting glimpses of his panicked figure. He was a half-cyborg, part of his head and his left arm replaced by cold, impersonal machinery. In his augmented hand, he clutched a machete, its blade slick with the dark stain of fresh blood.
 
-This desolate district lay far from the garish glow of the pleasure quarters, a warren of grimy alleys snaking through the narrow gaps between derelict buildings. The capillary-like passages twisted and turned, devoid of life, save for the man's desperate flight.
+This part of **The Scrapyard** was a forsaken zone, far from the neon-lit pleasure districts. Here, grimy alleys twisted like capillaries through the skeletal remains of long-abandoned buildings. The man darted through the labyrinth, his steps erratic, his mind unraveling.
 
-He ran aimlessly, the alleys narrowing and widening without pattern. At each fork, he whipped his head around like a cornered animal, eyes wide with a terror that went beyond mere fear. His choices seemed driven by some frantic impulse, a blind instinct to escape rather than any reasoned path to safety.
+"I'll be killed... I'll be melted..." His voice trembled, as if the very air had conspired against him. The walls distorted in his vision, twisting and writhing like the pulsating tongues of some unseen predator. 
 
-"I'll be killed... I'll be melted..." he muttered between gasps, his voice quavering with the dread of unseen horrors. Hallucinations clawed at the edges of his perception. The walls around him writhed like obscene, red-black tongues, pulsating and undulating as if alive, threatening to swallow him whole.
+Still, he ran, plunging deeper into the maze, hallucinations gnawing at his sanity. In the corners of his perception, the dark alleys whispered promises of doom, acid seeping from every crack, ready to dissolve him into nothing. His brain, saturated with alkaloids from a mescaline-fueled trip, spiraled into madness.
 
-Though panic-stricken by these phantoms, he dared not stop. To halt would be to succumb—to allow the walls to spew forth acid and dissolve him into nothingness. If one could peer into his mind, they'd find it awash with alkaloids—a cocktail of plant-based drugs wreaking havoc on his sanity. He was caught in the throes of a bad trip, the withdrawal symptoms blending reality and nightmare into a seamless horror.
+Behind him, footsteps. Close. Closer.
 
-But then—a sound. Footsteps? They echoed faintly, yet to his fractured psyche, they were the drums of an approaching executioner.
+The man’s escape ended in a dead end, a filthy river of sewer water blocking his path. Trembling, he pressed his back against a wire fence, eyes wide with terror as he peered into the shadows of the alley he’d just fled. The oppressive walls seemed to loom over him, crushing inwards. 
 
-"Oh no, they're getting closer. They're coming to melt me..."
+“No! Stop it!” He shrieked, slashing at his own arm, the blade biting deep into flesh. The sharp, pulsing pain cut through the fog of his mind, momentarily bringing him back to reality. Blood oozed from his wounds, but he welcomed the clarity.
 
-His frantic escape led him through a myriad of alleys until, abruptly, he reached a dead end. Before him gaped a deep, filthy sewer river; the alley terminated against a wire mesh fence that lined the polluted bank. Trapped, he pressed his back against the cold metal, his eyes darting wildly as he scanned the darkness ahead. The alley he'd just traversed was swallowed by shadow, as if the world ended just beyond his reach.
+"Serves you right... serves you right..." he muttered, laughing a dry, cracked laugh. His hallucinations faded, but the real danger that had driven him into this hell remained.
 
-The towering walls loomed over him, leaning in as if to crush him under their weight.
+A low voice emerged from the shadows.
 
-"No! Stop! Stop it!" he screamed, his face a mask of desperation. In a frenzied act, he switched the machete to his right hand and slashed at his own left arm. Once, twice—the blade bit into flesh, splitting the skin to reveal raw, pink muscle beneath. Blood spurted out, warm and sticky.
+"So, you’ve finally stopped running, Mr. 90,050 chips."
 
-"Agh! No! Ahh!"
+His bloodshot eyes strained against the darkness, and a silhouette took form. A shadow, as black as the void itself, stepped into the flickering light. 
 
-The searing pain ripped through him, sharp and immediate. His breathing became erratic, his chest heaving like bellows stoking a hellish furnace. But amid the agony, clarity began to pierce the fog of his mind. The hallucinations receded, the grotesque distortions of reality retreating like shadows banished by light.
+"You're not a hallucination, are you, you damn Hunter?" The man’s voice quivered with rage, but beneath it was the unmistakable note of fear.
 
-He let out a twisted, guttural laugh, eyes wide and unblinking. Staring into the abyss ahead, he muttered repeatedly, "Serves you right, serves you right."
+The figure dropped a rolled-up bounty list at his feet, crushing it beneath a booted heel. The dim light glinted off cold steel. 
 
-Yet even as the phantoms dissipated, a more tangible terror remained. The reality that had pursued him through the maze was still there—a relentless force that did not vanish with his hallucinations. It was the reason he'd been fleeing, the shadow that mingled with his nightmares: his pursuer.
+“Don’t think it’ll be easy.”
 
-"Aww, so you've cornered the cheaper bounty head, have you? Hey, do you recognize me, Mr. 90,050 chips?"
+The man’s posture shifted. He wiped the blood from his right arm, lowered his stance, and brandished his knife. There was a practiced grace in his movement—a muscle memory born from countless battles. He had survived the carnage of the streets before.
 
-The voice slithered out of the darkness, smooth and mocking. The man's vision, though still tinged with the remnants of his delirium, sharpened enough for him to focus down the alley. From the inky blackness, a figure emerged—a silhouette carved from the void itself.
+The shadow sighed. “A serial killer like you... would fetch a slightly better bounty if you hadn’t only targeted women. But a hunter will do for today.”
 
-"You're... not a hallucination, are you, you damn Hunter?" he spat, terror and hatred warring in his eyes.
+With a guttural shout, the man launched himself forward, his blade arcing through the air. His mechanical left arm surged with power, driving the knife toward the shadow’s head, its edge whistling through the darkness. 
 
-The shadow stepped forward with deliberate calm, hard-soled boots clicking against the pavement. As it advanced, it casually dropped a rolled-up bounty list at its feet and crushed it underfoot with a satisfying crunch.
+It was the same lethal technique that had sent many to their graves. But this time, something was different.
 
-"Don't think you can hunt me so easily," the man growled.
+The shadow's eyes flashed—a glint of red reflecting off the dull blade.
 
-He wiped the blood from his wounded arm, lowering himself into a combat stance. Despite his disheveled appearance, there was a lethal grace to his movements—a testament to countless battles survived. His posture was practiced, devoid of significant openings.
-
-The figure—his pursuer—sighed softly, a whisper of disappointment. "A serial killer who only targets women would fetch a better bounty," came the low reply. "But I suppose a Hunter will do for today."
-
-"Haah!"
-
-With a guttural shout, the man propelled himself forward, kicking off the ground with inhuman strength. He soared through the air like a predatory beast, bringing his machete down in a deadly arc aimed straight for the shadow's head. The servo-motors in his mechanical arm whirred, amplifying his strike. The blade sliced through the air with a keen hiss.
-
-This was his signature move—the one-hit kill that had felled many victims and eluded countless pursuers.
-
-But just as the blade was about to find its mark, a glint flashed in the shadow's eyes. Time seemed to slow. The dull gleam of the machete reflected in those eyes, and for a fleeting moment, the man felt a chill of foreboding.
-
-In that instant, a crimson light blazed upward from beneath the shadow. It arced gracefully from ground to sky like a fiery banner unfurling, then dissolved into the night. Almost simultaneously, a high-pitched, crystalline "ping" resonated through the alley, the sound waves rattling the dilapidated walls.
+A crimson arc of light cut through the darkness, tracing upward from the shadow’s feet. In the same instant, a sharp, metallic ring echoed through the alley, reverberating off the walls. The man's blow had missed—no, it had been intercepted with impossible precision.
 
 "W-what...?"
 
-The man felt a disconcerting absence—the expected jolt of his blade meeting resistance never came. Instead, his machete sliced through empty air. His mechanical arm, unimpeded, continued its downward trajectory, throwing him off balance.
+He hadn’t felt the satisfaction of the knife biting into flesh, the thrill of a kill. Instead, his hand grasped at empty air. The force of his own momentum sent him tumbling, and he hit the ground hard, rolling onto his back.
 
-Momentum carried him forward. He somersaulted in midair, the world flipping around him, before crashing onto the pavement. Pain shot through his body as he rolled to a halt.
+"My hand!" The man’s scream split the night. His left wrist, once an unyielding weapon of steel and circuitry, was now a clean, severed stump. Smoke rose from the glowing edges of the cut.
 
-"Ahhh! M-my hand!"
+The shadow loomed over him, untouched.
 
-Instinctively, he reached out with his left arm to brace himself, but there was nothing. Where his mechanical wrist should have been was now a jagged stump, sparking and smoking. The realization hit him like a physical blow, and a scream tore from his throat.
+"What the hell just happened?"
 
-The shadow stood over him, unruffled—as if nothing had happened.
+A moment later, his severed hand and the knife it clutched fell beside him, the blade embedding itself in the pavement like a gravestone.
 
-"Wh-what the heck is going on?" he gasped.
+The truth dawned on him too late. The shadow had kicked his wrist in mid-swing, severing it with inhuman speed. The technique had been flawless—more than flawless. It had been a display of martial artistry beyond anything he had seen. But how could a kick sever metal?
 
-A few seconds later, the severed hand—still clutching the machete—clattered onto the asphalt beside him, spinning like a discarded toy. The shadow hadn't dodged his attack. No, it had countered with a move so swift and precise that it defied comprehension.
+The man’s confusion turned to dread as the figure stepped forward, pinning him to the ground with a single, mechanical foot.
 
-The kick.
+"D-Damn it!" He cursed, twisting his neck to look up at his tormentor.
 
-It was a masterpiece—a ballet of lethal motion. The shadow's leg had snapped upward with the fluidity of a bird taking flight, yet struck with the devastating force of a predator's talon. As the machete descended, the shadow's leg unfurled like a whip, its foot intercepting the man's wrist with surgical precision.
+What he saw was a tall, slender figure, her body cloaked in a long, tattered coat that barely concealed the gleaming metal beneath. Her silver-framed glasses caught the faint light, and her red, pineapple-like hair gleamed ominously in the darkness.
 
-In that microsecond, the kick reached its zenith. The heel lifted off the ground, the body pivoted sharply on the ball of the foot, and the kinetic energy surged through muscle and metal alike. The blade connected not with flesh, but with empty space, as the man's hand was severed cleanly at the wrist.
+"A woman?" The man croaked, disbelief choking his words.
 
-The entire sequence had taken less than a fraction of a second.
+"Heh. At least that's what the chromosomes say," she replied, her lips curling into a smirk. But it wasn’t her gender that unnerved him. It was the cold, mechanical precision of her full-body cybernetic frame.
 
-The man stared in disbelief. Questions flooded his mind, but one eclipsed all others: How could a mere kick sever the wrist of a steel-made cyborg?
+The woman bent down, resting an elbow on the knee of the foot pressing him into the dirt. Her smile was cruel, her red lips twisting with dark amusement.
 
-By the time the horrifying reality sank in, the shadow had already stepped onto his back, pinning him to the ground.
+"You thought you could outrun me?" she asked, her voice a low rasp. "A killer like you... 90,050 chips? What a waste of a cartridge."
 
-"D-Damn it!" he cursed, squirming futilely under the weight. He craned his neck, desperate to see his assailant.
+She gestured to her leg. From beneath her coat, the sheen of her mechanical shin caught the light. A bolt-like handle jutted out from it, and with a quick pull, a cartridge ejected, clattering onto the ground.
 
-What he saw sent a jolt of shock through him—a tall, slender figure with silver-framed glasses and a shock of red hair styled like a pineapple.
+"Heat-ray blade," she said, tapping her shin. "It’s what severed your arm. Cost me a fortune to use, but I guess you were worth it... just barely."
 
-"A woman?"
+The man shuddered as the reality of his situation hit him. His bravado drained away, replaced by cold, gnawing terror. "P-Please... don’t..."
 
-She smirked, her lips twisting into a wry grin. "Heh heh, well, at least my consciousness and chromosomes are."
+But the woman wasn’t listening. She stepped harder on his back, eliciting a sickening crunch. 
 
-Indeed, her facial features and body line were unmistakably female. But beneath the tattered long coat that hung just above her knees, her body was entirely artificial—a construct of steel and ceramic. A full-body cyborg, save for the skin of her face and her hair.
+"I love that sound," she whispered, her eyes gleaming behind her glasses.
 
-She leaned forward, resting an elbow casually on her knee as she peered down at him. "The Hunter who blew off my wrist with a kick is a full-body cybernetic maniac chick?" he spat, trying to mask his fear with bravado.
+She raised her foot, and with surgical precision, drove the heated blade down. His last thoughts were of home—distant memories of a life before the drugs, before **The Scrapyard**. His final words were no more than a whisper.
 
-Her smile faded. Without a word, she pressed her foot down harder. A sickening crunch echoed as the bones in his back began to give way.
+“Dad... Mom...”
 
-"Ahhh!" he screamed, limbs flailing like a trapped insect.
+When the woman was finished, she lifted his severed head in one hand and, without a word, disappeared into the alley. The wind caught the hem of her coat, a fluttering shadow in the night.
 
-"Yes... yes! I love that sound of bones," she purred, savoring the sensation. She stomped again, repeatedly, her tongue darting out to lick the corner of her crimson lips.
+As the clouds drifted away, the moonlight bathed the alley in a cold, blue glow. There, next to the lifeless body, the knife stood like a gravestone, a silent witness to the violence.
 
-His facade of toughness crumbled, replaced by sheer terror. "Please... stop... help me!" he pleaded, tears mingling with sweat on his contorted face.
+The woman’s name was **Calico**.
 
-She tilted her head, feigning contemplation. "Is that all you have to say? Come on, since it's your last moment, say something more clever and die with a clear mind."
-
-He thrashed beneath her, but it was futile. The strength and weight of her cybernetic body rendered resistance meaningless.
-
-"Since it's a special occasion, I'll let you see my red-hot leg up close, okay? Look, it's still hot from the residual heat."
-
-She shifted her position, placing her right foot beside his neck. His eyes widened in horror as he gazed upon the cold, dull steel of her leg.
-
-With a soft whir, the modules in her limb activated. The steel toes split open, and from her calf emerged a blade—gleaming with the sharpness of a spear and the thickness of a knife. It was slightly charred, wisps of soot clinging to the edge. The center glowed faintly red, radiating a menacing heat.
-
-"Eek, stop it!" he shrieked.
-
-She looked down at him, eyes glinting behind her glasses. "If I don't cash in a Hunter's head at the Factory, I can't recharge my cartridges. Without the heat, my red-hot legs would just be pop-out knives, wouldn't they?"
-
-He could feel the searing heat of the blade against his cheek, the smell of burning flesh assaulting his senses.
-
-"Ahhh, Dad, Mom...!"
-
-As if to silence his final cries, she swung the blade in a swift arc. The motion was almost casual. A wet sound sliced through the air, followed by the acrid scent of scorched meat. His head toppled from his body, rolling to a stop at her feet.
-
-The corpse twitched reflexively, muscles firing their last signals. She watched dispassionately as it stilled.
-
-With a sigh, she leaned against the wall, reaching into her coat pocket. She extracted a cigarette, lighting it against the residual heat of her blade. Inhaling deeply, she exhaled a plume of purple smoke that drifted lazily into the night air.
-
-"Mescaline... what a mess," she mused aloud. "Getting hooked on that old-fashioned junk and going on a killing spree. No wonder you ended up like this."
-
-She glanced down at the severed head, its eyes frozen in a final expression of terror.
-
-"Man, what a bad aftertaste this job leaves," she murmured.
-
-Pushing off from the wall, she picked up the head by its matted hair. The gentle night breeze caught her coat, causing it to billow as she walked away, disappearing into the shadows.
-
-Above, the clouds parted, allowing the moonlight to bathe the alley once more. The headless body lay sprawled, the machete standing upright beside it like a grim gravestone.
-
-Her name was **Calico**, a Hunter-Warrior in **The Scrapyard**.
-
----
-
-The night swallowed her silhouette as she vanished into the maze of alleys, leaving only the echoes of her footsteps and the distant hum of a city that never slept.

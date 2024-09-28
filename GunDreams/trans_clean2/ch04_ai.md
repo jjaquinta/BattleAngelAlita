@@ -1,291 +1,176 @@
-### Chapter 4
+# CHAPTER 4
 
-"Hey... come on, wake up already."
+“Hey... come on, wake up already.”
 
-A distant voice pierced through the fog of Gally's unconsciousness, pulling her back to reality. When she opened her eyes, a red-haired woman with an unsettling smile was peering down at her.
+A distant voice, soft at first, pierced through the fog of Gally's unconscious mind, dragging her back to reality. When she opened her eyes, the red-haired woman—Calico—was staring down at her with an unsettling smile. Gally had been unconscious for several minutes, completely unaware of her surroundings.
 
-"Where... am I?" Gally murmured.
+“Where... am I?” Gally murmured, her voice weak.
 
-She realized she was lying on the rooftop of a building. The woman had carried her up here.
+She found herself on the rooftop of a building, the cold metal beneath her unfamiliar. Calico had carried her up here. The night sky stretched above, stars obscured by the thick pollution of **The Scrapyard**. 
 
-The red-haired woman stood at the edge of the rooftop, where there were no fences or barriers, gazing down at the city below. "Take a look. It's quite something, don’t you think?"
+Calico stood near the edge of the roof, her silhouette framed against the night sky. There were no fences, no barriers—just a steep drop to the streets below. She gazed downward, then tilted her head slightly, motioning with her chin.
 
-With a quiet chuckle, she motioned for Gally to join her. Though slightly annoyed at being commanded, Gally couldn't suppress her curiosity. She approached the edge and peered over.
+“Take a look. It’s quite a sight, don’t you think?”
 
-"Ah, that's... Ido..."
+Reluctantly, Gally crawled over to the edge and peeked down. 
 
-About ten meters below, at a small intersection of alleyways, a familiar figure lurked in the shadows. It was Ido, dressed in his usual black attire, leaning against the wall with a large trunk case by his side—the same one Gally had seen when he'd slipped out earlier.
+*Ido...*
 
-Ido cradled an abnormally large hammer, its tip sharply pointed—clearly not meant for any ordinary task.
+Far below, in a small intersection of shadowed alleyways, Ido stood. Dressed in his familiar black attire, he was leaning against the corner of a building, his posture tense, almost predatory. Beside him was the same large trunk Gally had seen earlier, the one he'd taken when he left the clinic. 
 
-"What... what is Ido planning to do?" Gally whispered, a mix of suspicion and concern knotting in her stomach.
+In his hands, Ido gripped a massive hammer. The weapon gleamed faintly in the moonlight, its sharp, pointed tip designed not for labor but for violence.
 
-Faint footsteps echoed from the darkness of the alley. A silhouette, seemingly of a woman, began to emerge toward the intersection where Ido waited, unnoticed.
+Gally's breath hitched. “What is Ido planning to do?” she whispered, her heart racing.
 
-Ido pressed his ear against the wall, his body tense. As the woman passed by, he stepped out silently, his hammer poised.
+Before Calico could respond, faint footsteps echoed through the alley. A figure emerged—a woman, walking slowly, unaware of the danger lurking ahead. Ido pressed himself closer to the wall, silent and unseen.
 
-"No... you can't, Ido!" Gally gasped.
+The red-haired woman beside Gally smiled, enjoying the tension in the air.
 
-The red-haired woman beside her wore a gleeful smile, savoring the unfolding scene.
+Suddenly, as the woman passed, Ido moved. His hammer swung upward in a smooth, practiced arc, and the sound that followed—an awful, crunching impact—echoed up to the rooftop.
 
-Just as Gally reached out, her voice caught in her throat. Ido's hammer came crashing down, shattering the woman's skull with a sickening crunch. The sound echoed eerily, like an insect being crushed underfoot.
+“No!” Gally gasped, her voice barely more than a breath. 
 
-Gally watched in horror as Ido stood over the lifeless body, a faint smile playing on his lips. He stepped on the flattened remains, freeing them from the hammerhead, and carefully placed the mangled head into a burlap sack.
+The hammer connected with the woman’s skull, and she crumpled to the ground, lifeless. The sound of her death was sickening, the crunch of bone and flesh shattered by the force of Ido’s swing.
 
-"Hehe... shocked, aren't you?" whispered the red-haired woman, crouching beside Gally.
+For a moment, Gally froze, unable to process the brutality before her. Below, Ido calmly stepped forward, placing his foot on the woman’s head and pulling the hammer free from her crushed remains. Then, with practiced precision, he lowered her head into a burlap sack.
 
-Gally sat frozen, her mind reeling. The woman sighed. "Oh dear... maybe I went a little too far with the fun."
+“A-ah...” Gally choked on her breath.
 
-She shook Gally gently, lightly slapping her cheeks. "Snap out of it. That was nothing—just a Hunter-Warrior doing his job."
+Beside her, Calico crouched down, her voice a low whisper. “Shocked, aren’t you?”
 
-Gradually, clarity returned to Gally's eyes.
+Gally remained still, her mind reeling from the sight of Ido’s cold efficiency. She had never imagined this. The man who had saved her, the man who had given her life, was... a killer?
 
-"Ido isn't a serial killer; he's a Hunter-Warrior who hunts down criminals," the woman explained.
+Calico, noticing Gally's vacant expression, let out a sigh. “Oh dear... maybe I went a little too far with the fun.”
 
-Gally blinked, her voice trembling. "A Hunter-Warrior? But he just... killed that woman."
+She gave Gally a light shake, slapping her cheeks gently to bring her back. “Come on, snap out of it. That was nothing, you know. It’s just part of the job.”
 
-The red-haired woman nodded. "She was on the bounty list. One of the notorious mutant sisters, Asnas. A murderer. The bounty on her head was a modest 32,000 chips."
+Slowly, Gally’s eyes regained focus. She shook her head, trying to dispel the numbness clouding her mind. 
 
-She handed Gally a printout of the bounty list. Gally exhaled a long sigh of relief.
+“What... what is Ido doing?” she whispered, her voice barely audible.
 
-"Feeling better now? Ido's one of the decent ones. He doesn't take on bodyguard gigs like I do. He only hunts small fry on the side. Still, he's doing alright," the woman continued.
-
-Gally now understood the truth: Ido was working as a Hunter-Warrior to earn money, likely to repair her body. The woman also mentioned that body parts were acquired cheaply from corpse recovery dealers.
-
-"Honestly, you were taking everything Shig and the others said so seriously, I couldn't resist messing with you a little," she added with a smirk.
-
-"Your name is... Calico, right?" Gally asked.
-
-"That's me," the red-haired woman replied, lighting a cigarette and exhaling a plume of purple smoke.
-
-"By the way, Gally, where did you learn that technique?" Calico inquired.
-
-Gally gave a wry smile. "I don't really know. Ido found me and brought me back to life. I still don't understand much about myself."
-
-The martial arts techniques that had surged from deep within her were fading back into the fog of her lost memories.
-
-"Hey, Calico, do you think we'll meet again sometime?" Gally asked suddenly.
-
-Calico scratched her head, her gaze drifting into the night sky. She flicked her cigarette away. Without looking back, she disappeared into the maze of the entertainment district.
-
-"Will I make it home before Ido gets back?" Gally wondered aloud.
-
-She ran through the dark alleys. By the time she returned home, Ido hadn't yet arrived. He likely had to stop by the Factory to cash in the bounty.
+Calico leaned back, a grin tugging at her lips. “Ido isn’t a serial killer. He’s a Hunter—one who hunts down the killers.”
 
 ---
 
-The next morning felt surreal, as if the events of the previous night had been a dream. So much had happened so quickly. Gally felt drained, her thoughts a whirlwind of confusion.
+The red-haired woman explained the truth behind Ido’s actions. In **The Scrapyard**, there was no formal law, no police to protect the people. Instead, the Factory, which controlled the city on behalf of **Zalem**, maintained order by placing bounties on criminals. These criminals were hunted by freelance bounty hunters—known as **Hunter-Warriors**.
 
-"What happened, Gally? Your body's all dented and scratched," Ido said, concern etched on his face as he tightened the bolts on her maintenance hatch.
+“The woman Ido just killed was on the list,” Calico said casually, handing Gally a printout of the bounty.
 
-"No problem with your internal organs, but one of your joints is a little misaligned. Did something happen?"
+Gally scanned the page, her heart still racing. The woman’s name was Asnas—one of the notorious mutant sisters who had committed multiple murders. The bounty for her head was 32,000 chips.
 
-"Uh, no, nothing... I just tripped. Sorry, it's nothing serious," Gally replied, her mind elsewhere.
+Gally let out a long, shaky breath. “So... Ido’s been doing this to keep us alive. To repair me.”
 
-Her thoughts were consumed by the battle with Calico, the fleeting sense of fulfillment she’d felt, the strange exhilaration when fragments of her past resurfaced.
+Calico nodded, lighting a cigarette and exhaling a cloud of purple smoke. “Yep. He’s one of the decent ones, though. Doesn’t take bodyguard gigs like I do. He just hunts the small fry. Probably to help you out.”
 
-"Are you sure? You seem... distracted," Ido pressed gently.
-
-Gally forced a smile. "I'm fine, really. Just lost in thought."
-
-Ido sensed her reluctance but decided not to push further. "Alright, if you say so."
-
-But tension hung between them, unspoken and heavy.
-
-That night, Gally gathered her courage. "Ido, I want to become a Hunter-Warrior," she confessed.
-
-Ido's reaction was immediate. "What? No! That's nonsense! You can't become a Hunter-Warrior!"
-
-Gally met his gaze, her eyes filled with determination. "I've started to remember things—combat techniques. By putting myself in battle, I can reclaim pieces of who I was."
-
-Ido shook his head vehemently. "But that's not why I brought you back. You don't understand how ugly and dirty battle really is."
-
-As he turned away, Gally's voice rose. "I know, Ido! I know you're a Hunter-Warrior! If fighting is so terrible, why are you doing it?"
-
-He froze. "You... you knew?"
-
-She stepped closer. "I realized how much danger you put yourself in for me. I can't let you face it alone."
-
-Ido's shoulders slumped. "For your sake, I'd gladly sever any criminal's head. But... I want you to remain my dream."
-
-"Ido..." Gally whispered, her heart aching.
-
-"I just want to make you into something beautiful," he said, his voice strained.
-
-Gally shook her head gently. "I'm sorry, Ido... but I can't be your dress-up doll."
-
-She turned and left, leaving Ido alone with his unspoken sorrows.
+Gally looked down again at the alley, where Ido was now packing up the remains of his target. The knowledge weighed heavily on her, but alongside the shock was a growing realization: Ido was doing this to protect her. Every strike of his hammer, every head he collected, was a sacrifice to restore her body.
 
 ---
 
-Gally wandered the bustling streets of the entertainment district, aimless and lost. Should she really pursue becoming a Hunter-Warrior? She didn't even know how to begin.
+They sat in silence for a moment before Calico broke it, her tone lighter. “By the way, where did you learn that technique back there?”
 
-Sitting on a pile of discarded monitors, she sighed. "What should I do now?"
+Gally frowned, her memories still a blur. “I... don’t know. Ido brought me back to life, but I have no idea who I used to be.”
+
+The martial arts that had surged up during her earlier fight had felt instinctive, yet distant—like fragments of a forgotten life. Gally’s mind was still foggy, her past submerged beneath layers of uncertainty.
+
+“Hey, do you think we’ll meet again?” Gally asked suddenly, looking over at Calico.
+
+The red-haired woman scratched her head, flicking her cigarette away. Without a word, she stood and disappeared into the shadows of the entertainment district.
+
+---
+
+Gally made it home before Ido returned. He must have gone to the Factory to cash in the bounty, which gave her just enough time to slip back into the clinic. But even as she lay in bed, the events of the night replayed in her mind.
+
+The next morning, Ido noticed the scratches and dents on Gally’s body as he performed maintenance. His concern was evident. 
+
+“What happened, Gally? There’s some misalignment in your joints... did you trip or something?”
+
+Gally forced a smile. “It’s nothing, Ido. Just... had a rough night.”
+
+But inside, she couldn’t stop thinking about the battle with Calico, the rush of combat, the fleeting memories that had surfaced. She had to know more.
+
+That evening, she finally worked up the courage to confront Ido.
+
+“I want to become a Hunter-Warrior,” Gally announced, her voice firm.
+
+Ido froze, his expression shifting from shock to disbelief. “What? Gally... no. Why would you want to do something like that?”
+
+Gally’s heart pounded, but she held her ground. “I’ve started to remember, Ido. Combat techniques... they’re coming back to me. I need to find out who I am, and I think I can do that by fighting.”
+
+Ido shook his head, turning away from her. “That’s not why I saved you. I didn’t pull you from the scrapyard to see you fight.”
+
+Gally’s voice trembled. “Ido, I *know* you’re a Hunter-Warrior. You’ve been doing this... for me. But I don’t want you to face all this alone. I want to help you.”
+
+Ido’s shoulders tensed, his voice barely a whisper. “I do this for you, Gally. Because I want to protect you. You don’t belong in this world.”
+
+Tears welled up in Gally’s eyes. “But it’s *my* life, Ido. I need to live it my way.”
+
+Ido didn’t turn. His voice cracked with emotion. “I wanted to make you into something beautiful, Gally. Not... this.”
+
+“I’m sorry, Ido,” she whispered, turning to leave. “But I can’t be your dream.”
+
+---
+
+Wandering through the streets of the pleasure district, Gally felt lost. She didn’t know where to go, or how to become a Hunter-Warrior. She sat down on a pile of old monitors and sighed.
 
 A hand rested on her shoulder.
 
-"We meet again," a familiar voice said.
+“We meet again,” a familiar voice said.
 
-"Shig?"
+Gally looked up to see Shig, the plump, tanuki-faced woman from the night before.
 
-Gally looked up to see the plump, friendly face of Shig. Scratching her head, Shig gave a small bow.
+“Sorry about yesterday,” Shig said with a sheepish grin. “Didn’t know your friend was a Hunter.”
 
-"Sorry about yesterday. I had no idea your friend was a Hunter. Big mistake, huh?"
+Gally smiled faintly, grateful for the small kindness. Without thinking, she hugged Shig.
 
-Gally felt a surge of relief. Without thinking, she hugged Shig tightly.
-
-"There, there," Shig said with a chuckle.
-
-"Can you help me?" Gally asked, her voice barely above a whisper.
-
-"Of course," Shig replied warmly.
+“Thank you,” Gally whispered.
 
 ---
 
-Shig led Gally to a back entrance of one of The Scrapyard's top cabarets in the eastern district.
+Shig led her to the back of one of The Scrapyard’s top cabarets, where Kyariko, the red-haired Hunter-Warrior, often worked. Gally’s heart raced as they entered the dimly lit hallway leading to a dressing room.
 
-"Does Calico live here?" Gally asked.
+“Kyariko,” Shig called out, knocking loudly.
 
-Shig laughed softly. "Calico? She doesn't have a proper home. She works all over the entertainment district. You could say the whole place is her home."
+After a brief pause, the door opened, revealing the red-haired woman, cigarette in hand.
 
-They navigated through grimy alleys, arriving at a dressing room.
+“So, you’ve come to bother me again?” Kyariko smirked, leaning against the doorframe.
 
-"Hey, it's me, Shig!" she called, knocking on the door.
+“She wants to be a Hunter-Warrior,” Shig explained.
 
-After a moment, the door opened slightly. "What do you want?" Calico's eyes narrowed.
+Kyariko sighed, rolling her
 
-"Calico, Gally wants to become a Hunter. She came to ask for your help," Shig explained.
-
-Calico sighed, lighting a cigarette. "You sure about this, Gally?"
-
-Gally nodded earnestly. "I have nowhere else to turn. I don't know anything about this city or how to become a Hunter-Warrior. Please teach me."
-
-Calico studied her for a long moment. Finally, she exhaled a plume of smoke. "Alright. I'll show you how to register."
-
-"Thank you," Gally said, relief washing over her.
+ eyes. “Fine. I’ll take you to the Factory.”
 
 ---
 
-They left the entertainment district, heading toward the Factory—a massive structure that loomed over The Scrapyard, connecting to the aerial city of Zalem via a thick, ivory-colored pipe stretching into the sky.
+The Factory loomed in the distance, a massive structure beneath the floating city of Zalem. Pipes twisted upward, connecting to the heavens, while the ground level buzzed with activity. Inside, the process to become a Hunter-Warrior was simple—a laser imprinted an identification code onto Gally’s brain. 
 
-"Is it really this easy to become a Hunter-Warrior?" Gally asked, rubbing her head. The registration process had been surprisingly simple—a laser imprinting an identification code onto her brain.
+“That’s it?” Gally asked, rubbing her forehead.
 
-"Becoming one is easy," Calico replied. "But making a name for yourself? That's the hard part."
+“Becoming one is easy,” Kyariko replied. “Making a name for yourself? That’s the hard part.”
 
-"I don't really understand what it means to 'make money' yet..." Gally admitted.
+As they left the Factory, a group of men stepped out from the shadows, surrounding them. Their leader, a fully cyberized thug with the head of a steel bull, stepped forward, cracking his knuckles.
 
-Calico smirked. "You'll learn soon enough."
+“Remember me, baby?” Colt sneered, his eyes gleaming with malice.
 
-As they approached the entrance to the entertainment district, a group of men emerged from the shadows, surrounding them.
+Gally took a step forward, her gaze hardening. “Colt.”
 
-"Out at this hour? Sorry for being such villains," a voice sneered.
-
-"What's the meaning of this?" Calico demanded, flicking her cigarette aside.
-
-A towering, fully cyberized man stepped forward—a steel bull-like face gleaming in the dim light.
-
-"Remember me, baby?" he growled.
-
-"You're... Colt," Gally whispered.
-
-"Didn't think you'd forget," Colt replied arrogantly.
-
-Calico tensed. "What do you want?"
-
-Colt grinned. "Just a little revenge. And maybe some fun."
-
-Ten men closed in, weapons gleaming.
-
-Calico glanced at Gally. "Stay close."
-
-Colt laughed. "Think you can take us all?"
-
-Calico's eyes hardened. "Try me."
+The tension in the air thickened as the confrontation loomed.
 
 ---
 
-The alley erupted into chaos.
+The battle that followed was swift and brutal. Colt, a towering figure of strength, attacked relentlessly, his blows powerful and precise. But Gally, with her newly awakened instincts, met him head-on, her movements fluid and sharp.
 
-Calico moved like lightning, her red-hot thermal blade slicing through the air. In seconds, five men lay crumpled at her feet.
+Colt’s laughter echoed through the streets as he charged again and again, each strike more furious than the last. But Gally, though battered, refused to back down.
 
-Gally watched in awe and horror as Calico dispatched two more with ruthless efficiency.
+With a final, devastating kick, she leaped into the air, her body spinning like a whirlwind. The impact was instant—Colt’s head was crushed beneath her heels, his body torn apart by the sheer force of her attack.
 
-Colt snarled. "Impressive. But I'm not so easily beaten."
+The streets fell silent.
 
-He charged at Gally, his massive frame barreling forward.
+Gally stood amidst the wreckage, her chest heaving, her mind ablaze with the realization of what she had just done.
 
-Gally's heart pounded. She tried to recall the combat techniques buried deep within her.
+Calico watched from the shadows, her cigarette hanging loosely from her lips. “That... was ancient Martian combat,” she whispered, her voice tinged with awe.
 
-"Focus..." she whispered.
+Gally, trembling, whispered back. “I remember now.”
 
-Colt's fist swung toward her like a wrecking ball.
+With that, she collapsed, the exhaustion of the battle finally overtaking her.
 
-At the last moment, Gally sidestepped, the memory of a martial arts move flashing in her mind. She countered with a swift kick, but it barely phased him.
-
-He laughed. "That all you got?"
-
-He swung again, and this time, Gally couldn't dodge in time. The impact sent her skidding across the pavement.
-
-"Gally!" Ido's voice echoed as he arrived, his hammer raised.
-
-"Stay back!" Calico shouted, holding him back. "She needs to do this."
-
-Gally pushed herself up, blood trickling from her lip.
-
-"Come on," she told herself. "Remember."
-
-Colt charged once more.
-
-Gally closed her eyes, letting go of conscious thought. The world seemed to slow. When she opened her eyes, a calm settled over her.
-
-Colt's fist hurtled toward her, but this time, she moved with fluid grace. She dodged, weaving under his arm, and struck a precise blow to his elbow joint.
-
-There was a sharp crack.
-
-"Argh!" Colt bellowed, clutching his damaged arm.
-
-Gally didn't hesitate. She spun and delivered a powerful kick to his head. Colt staggered back, dazed.
-
-"Impossible..." he muttered.
-
-Gally stood firm. "This ends now."
-
-With a final burst of speed, she leaped into the air, descending upon him with a devastating strike. The impact shattered Colt's cybernetic body, pieces scattering across the alley.
-
-Silence fell.
-
-Ido stared in disbelief. Calico smirked, impressed.
-
-Gally landed softly, her strength spent. "I... remember now," she whispered before collapsing.
-
----
-
-When Gally awoke, she was back in Ido's workshop. His worried face hovered above her.
-
-"You're awake," he said softly.
-
-"Ido... I'm sorry," Gally murmured.
-
-He shook his head. "No. I'm the one who's sorry. I should have trusted you."
-
-She reached out and took his hand. "Thank you... for believing in me."
-
-He smiled gently. "You were incredible out there."
-
-Gally nodded. "I know who I am now. Or at least, part of me."
-
-"That's all that matters," Ido replied.
-
-From the doorway, Calico leaned against the frame. "Seems like everything worked out."
-
-Gally met her gaze. "Thank you, Calico."
-
-She waved a dismissive hand. "Don't mention it. Just keep surviving."
-
-Gally smiled. "I will."
-
----
-
-The wind whispered through The Scrapyard, carrying with it the promise of new beginnings. Gally stood at the edge of the rooftop, gazing out over the sprawling city.
-
-Her journey was just beginning.
